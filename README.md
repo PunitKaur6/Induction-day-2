@@ -12,5 +12,4 @@
 ## Dr. Priya Darshni on " UNIVERSAL HUMAN VALUES ".
 ## Dr. Arvind Dhingra on student development.
 ## Dr. Arashdeep Singh on " FOOD : A pivotal role in student's overall wellness.
-### Esteemed guests Dr.Akshay Girdh , Rajinder Garg (GUEST OF HONOUR) , DR. Sehijpal Singh (Principal Sir) , and at last Kulwinder Singh Maan Sir.
 # And at last everyone dispersed....
